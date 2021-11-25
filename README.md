@@ -1,1 +1,1 @@
-# ISRO-Information-ISRO-Missions-ans-future-missions
+# ISRO-Information-ISRO-Missions-and-future-missions
